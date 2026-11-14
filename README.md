@@ -14,9 +14,9 @@ AcFan TG官方群：https://t.me/acfan55
 
 AcFan免下载在线看：https://4shjjekhen855klh.dpztxquz.work/
 
-AcFan剧下载地址：https://fanju.8ugtbmke.work
+AcFan新产品AI漫剧下载地址：https://fanju.8ugtbmke.work
 
-AcFan剧在线观看：https://fanju.8ugtbmke.work
+AcFan新产品AI漫剧在线观看：https://www.o5nnxs2k.work/home
 
 失联后如何获取最新地址： 
 
